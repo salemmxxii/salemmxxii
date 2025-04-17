@@ -1,1 +1,1 @@
-soooooooooo is this the hook you wanted...?
+just tell me whose mother i have to kill

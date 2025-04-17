@@ -1,3 +1,4 @@
-visited the true mans world but it wasnt for me
+i like to make games and listen to songs
 
-i like night in the woods, cave story, and shadow of the colossus
+the underlying purpose of ai is to allow wealth to access skill, while removing from the skilled the ability to access wealth
+*joseph browning*

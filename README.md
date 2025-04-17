@@ -1,1 +1,3 @@
-just tell me whose mother i have to kill
+visited the true mans world but it wasnt for me
+
+i like night in the woods, cave story, and shadow of the colossus
